@@ -2,6 +2,6 @@
 - GDPS enthusiast
 - Owner of the 1.3 GDPS
 - Mostly plays GDPSes, TF2, Warfork, Bejeweled and on mobile i play Clash Royale and Brawl Stars
-- im 15
+- im 16
 - i like cats
 - im straight
